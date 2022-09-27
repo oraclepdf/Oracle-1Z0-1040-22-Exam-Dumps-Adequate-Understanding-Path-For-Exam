@@ -1,0 +1,1 @@
+# Oracle-1Z0-1040-22-Exam-Dumps-Adequate-Understanding-Path-For-Exam
